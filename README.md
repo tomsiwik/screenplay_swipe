@@ -1,51 +1,97 @@
 ## Swipe
 
-Sommer. Vormittag. Ein Student (M) kommt an einem Fahrradständer geradelt und steigt ab. Das Fahrrad
+Sommer. Vormittag. Ein Student (M) kommt zu einem Fahrradständer geradelt und steigt ab. Das Fahrrad
 ist ein Leihbike und wird von ihm in den Ständer geschoben. Er holt ein Handy aus seiner Hosentasche
-und auf dem Handydisplay sieht man ein großes Fahrradlogo; Darunter ein offenes Schloss. Der Student
-klickt mit seinem Daumen auf das Schloss und es schliesst sich. Er rüttelt noch ein mal am Fahrrad und
-holt seine Kopfhörer raus welche er sofort in die Ohren steckt. Ein weiteres mal sieht man das Handy,
-nur diesmal klickt er auf einen großen Play button. Motivierende Musik ertönt. Mit einem
-sicheren-"I am ready"- Blick geht der Student voraus in Richtung Universität.
+und auf dem Handydisplay sieht man ein großes Fahrradlogo; darunter ein offenes Schloss. Der Student
+klickt mit seinem Daumen auf das Schloss und es schliesst sich. Er rüttelt noch einmal am Fahrrad und
+holt seine Kopfhörer raus, welche er sofort in die Ohren steckt. Ein weiteres Mal hebt er sein
+Handy. Diesmal klickt er auf einen großen Play-Button. Motivierende Musik ertönt. Mit einem sicheren
+"I am ready"- Blick geht der Student voraus in Richtung Universität.
 
-Der Student kommt seinen Studentenalltag nach. Man sieht ihn im Hörsaal in die Vorlesung eintreten. Der
-Professor redet und zeigt auf die Folien. Der Student hingegen, immernoch mit den Kopfhörern und gleichen
-Musik, starrt mit dem seitlich gehaltenen Handy auf das Display. Man sieht ihn ein Handy Spiel spielen.
-Erneut erblickt man den Professor, wie er den Beamer ausschaltet. Alle Studenten stehen auf. Die Vorlesung
-ist beendet. Der Student kriegt es trotz gefesselter Konzentration mit, steht auf, schnappt sich seine
-Tasche und geht zügig aus dem Hörsaal.
+Der Student kommt seinem Studentenalltag nach. Man sieht ihn im Hörsaal in die Vorlesung eintreten. Der
+Professor redet und zeigt auf die Folien. Der Student sitzt auf seinem Platz, er trägt immernoch seine
+Kopfhörer und es spielt die gleiche Musik. Er starrt auf das Display während er das Handy seitlich hält.
+Man sieht ihn ein Handy Spiel spielen. Erneut erblickt man den Professor, wie er den Beamer ausschaltet. Alle Studenten
+stehen auf. Die Vorlesung ist beendet. Der Student kriegt es trotz gefesselter Konzentration mit, steht auf,
+schnappt sich seine Tasche und geht zügig aus dem Hörsaal.
 
 In der Kantine sitzt der Student am Tisch während er isst und sein Handy anschaut. Diesmal schaut er sich
-Memes und lustige Bilder an. Beim essen muss er kurz lachen, swiped aber direkt weiter zum nächsten Bild.
+Memes und lustige Bilder an. Beim Essen muss er kurz lachen, swiped aber direkt weiter zum nächsten Bild.
 
 Mit einem Kaffee in der Hand und seinem Rucksack über der Schulter hängend steigt er die Treppen ab und
-kommt im Erdgeschoss an. Er hält sein Handy hoch, schaut drauf und guckt nach rechts. Er schaut erneut auf
-das Handy, entschließt sich für die linke Richtung und geht den Flur entlang.
+kommt im Erdgeschoss an. Er hält sein Handy hoch, schaut drauf und guckt anschließend nach rechts.
+Er schaut erneut auf das Handy, entschließt sich für die linke Richtung und geht den Flur entlang.
 
-Draußen angekommen sieht man ihn leicht lächeln and sein Handy absenken. Er hat gefunden was er gesucht hat.
+Draußen angekommen sieht man ihn leicht lächeln und sein Handy absenken. Er hat gefunden was er gesucht hat.
 Er setzt sich auf eine Bank und legt seinen von der Schulter hängenden Rucksack und Kaffee ab. Er hält weiterhin
-sein Handy fest in der Hand. Die selbe Musik ertönt durch die Kopfhörer und man sieht ihn sich nach hinten in
+sein Handy fest in der Hand. Die selbe Musik ertönt durch die Kopfhörer und man sieht ihn sich nach hinten an
 die Bank lehnen. Kurz Ruhe und Entspannung.
 
-Er lehnt sich nach vorne und schau ein weitere Mal auf Handy. Diesmal zögert er und hält kurz inne. Er öffnet
-Tinder. Swiped zwei mal nach links (nein) und hält an bei einer nett ausehenden Frau. Man sieht sein interesse
-im Gesicht und ein leichtest lächeln... er swiped nach rechts. Voller zuversicht lehnt er sich nach hinten,
-kreuz seine Arme zusammen und schliesst seine Augen. Die Musik wird ruhig... das Bild dunkel.
+Er lehnt sich nach vorne und schaut ein weiteres Mal auf sein Handy. Diesmal zögert er und hält kurz inne.
+Er öffnet Tinder. Swiped zwei mal nach links (nein) und hält an bei einer nett aussehenden Frau.
+Man sieht sein Interesse im Gesicht und ein leichtes Lächeln... Er swiped nach rechts. Voller zuversicht
+lehnt er sich nach hinten, verschränkt seine Arme und schliesst seine Augen. Die Musik wird ruhig...
+Das Bild dunkel.
 
 Plötzlich ertönt ein Wecker. Der Student schreckt auf und ist verwirrt. Er schaut auf sein Handy, der Alarm
 ist aktiv für einen Vorlesungstermin. Zügig packt er alles zusammen, lässt den Kaffe liegen und rennt zurück in
-das Gebäude, die Treppen hoch. Als er oben ankommt schaut er nach links, reht kurz nach rechts, entscheidet
-sich aber doch für Links. Sein Blick schaut auf sein Handy als er los geht. Unverhofft kommt plötzlich eine
+das Gebäude, die Treppen hoch. Als er oben ankommt schaut er nach links, geht kurz nach rechts, entscheidet
+sich aber doch für links. Sein Blick ist auf sein Handy gerichtet. Unverhofft kommt plötzlich eine
 andere Person entgegen und beide stoßen zusammen. Der Student verliert die Kontrolle über sein Handy und es
 fällt aus seiner Hand. Man sieht nur noch wie das Handy langsam zu Boden fällt und als es den Boden berührt,
-bricht und in zwei Teile spaltet.
+und in zwei Teile bricht.
 
 Der Student steht voller Schock da und schaut zu Boden. Er kniet sich langsam hin, hebt vorsichtig sein Handy
-hoch und prüft es. Der An Knopf funktioniert nicht, das Display geht nicht an. Man sieht noch immer den
-erschrockenen Blick des Studenten, der sich aber gerade zusammennimmt und sich fokusiert. Die Vorlesung ist
-wichtiger. Er steht auf, sein Blick ist entschlossen und er rennt weiter.
+hoch und prüft es. Der An-Knopf funktioniert nicht, das Display geht nicht an. Man sieht noch immer den
+erschrockenen Blick des Studenten, der sich aber gerade zusammen nimmt und sich fokussiert. Die Vorlesung ist
+wichtiger. Er steht auf, sein Blick ist entschlossen und er läuft weiter.
 
-Er kommt noch rechtzeitig an in einen Raum der hinter sich zugemacht wird. Die Uhr geht auf punkt 14 Uhr über.
-Der Student setzt sich hin, sackt in den Sitz ein und ist erleichtert. Kurz hällt er inne, als er merkt das er
-noch immer sein kaputtes Handy in der Hand hällt. Er schaut es an, wirkt enttäuscht und legt seine über den
-Schultern geworfene Kopfhörer ab. Ein Stift und Heft zum mitschreiben holt er raus. Die Vorlesung beginnt.
+Er kommt noch rechtzeitig an in einen Raum, der hinter ihm zugemacht wird. Die Uhr springt auf Punkt 14 Uhr.
+Der Student setzt sich hin, sackt in den Sitz und ist erleichtert. Kurz hält er inne, als er merkt, dass er
+noch immer sein kaputtes Handy in der Hand hält. Er schaut es an, wirkt enttäuscht und legt seine über die
+Schultern geworfene Kopfhörer ab. Er nimmt einen Stift sowie ein Heft aus dem Rucksack. Die Vorlesung beginnt.
+
+Man sieht die Zeit langsam von 14 Uhr auf 14:30 Uhr "faden". Der Student schreibt mit. Weitere 20 Minuten verfliegen.
+Der Student hat schon aufgehört mitzuschreiben und spielt mit seinem Stift. Weitere 20 Minuten vergehen...
+Der Student ist mit dem Gesicht in der Hand versunken und sieht müde aus. Man sieht nur noch wie er sich auf den
+kleinen Tisch mit verschränkten Armen drauflegt und seine Augen langsam zufallen. Die Vorlesung ist beendet...
+Der Raum leer. Der Student wacht auf... schaut verdutzt zur Seite und sieht, dass keiner mehr da ist. Ein kurzer
+Blick auf die Uhr. Erneut steht er panisch auf, stopft sein Heft und Stifte in den Rucksack und läuft los.
+
+Draußen vor dem Fahrradständer nimmt er sein Handy raus. Er realisiert tollpatschig, dass sein Handy das Schloss
+nicht mehr öffnen kann. Er läuft schnell weiter zur nächsten Bushaltestelle. Im Fernen an der Haltestelle fährt
+der Bus gerade weg. Man sieht den Studenten resignierend aus dem Lauf anhalten. Voller Erschöpfung und leicht
+wütend sackt er zusammen und holt nochmals Luft. Sich geschlagen gebend nimmt er seine Sachen und setzt sich auf
+die Bank an der Haltestelle. Seine Augen geschlossen und noch immer schnaufend atmet er weiter durch.
+
+Ein Schatten aus dem Blickwinkel kommt entgegen und setzt sich neben ihm hin. Der Student öffnet langsam seine
+Augen und schaut gleichgültig kurz zur Seite. Weiter unten bemerkt er ein kaputtes Handy in einer weiblichen Hand.
+Schon bereits augeschnauft blickt er nach oben und erkennt, es ist eine Frau, die sich auch erschöpft neben
+ihn setzt. Er beugt sich leicht nach vorne und erkennt nun ihr Gesicht.
+
+Flashback. Vormittag des Tages. Eine nette beruhigende Musik spielt. Während der Student vom Fahrradständer weg geht
+sieht man das Mädchen mit einem Handy hinter ihm auch zur Uni gehen. Mit aufgesetzten On-ear Kopfhörern und fokussiert
+auf ihr Handy geht sie zur Uni. In der Vorlesung, während der Student mit seinem Handy etwas zockt, sitzt das Mädchen
+vor ihm und ist fleißig am Lernen. Auch hier wieder mit aufgesetzten Kopfhörern sowie ihrem Handy in der Hand, welches
+Diagramme der Vorlesung zeigt. In der Kantine sitzt das Mädchen genau hinter ihm am Tisch, hört Musik, trinkt einen Tee
+und starrt aufs Handy.
+
+Draußen im Uni Park sieht man sie den Pfad entlang gehen. Neben ihr auf der Bank lehnt sich gerade der Student ruhig
+zurück und schliesst die Augen. Sie geht an ihm vorbei ohne ihn zu bemerken. Es kommt eine Nachricht an, sie schaut aufs
+Handy: Sie haben ein Match. Plötzlich hört sie Alarmgeräusche und eine Person rennt in die Universität (der Student).
+Sie dreht sich um, blickt verwundert der davonlaufenden Person nach und ihr Blick fällt auf den Kaffeebecher auf der Bank.
+Sie schaut mit einem "typisch" Blick gelassen auf den Becher und steckt ihr Handy in die hintere Hosentasche ohne die Nachricht
+zu lesen. Etwas wichtigeres zuerst... den Kaffeebecher wegwerfen. Sie hebt den Kaffeebecher hoch und sieht gegenüber auf der
+anderen Seite neben einer Bank einen Mülleimer. Ohne zu schauen und die Kopfhörer immernoch aufgesetzt, geht sie dorthin.
+Man sieht wie ein Fahrrad neben ihr auftaucht. Erschrocken wicht sie rechzeitig
+aus und taumelt rückwärts auf die Bank zu. Sie fällt sitzend auf die Bank. Es knackt. Musik ist aus.
+
+Das Mädchen holt Ihr Handy raus. Gebrochenes Display und kein Lebenzeichen vom Handy. Ihr Blick zeigt trauer. Sieht atmet
+einmal durch und realisiert das ihr gott sei dank nichts passiert ist. Sie wirft den Kaffee becker mit links in die Mülltonne
+und starrt nach unten. Es geht weiter... sieht steht auf und geht weg.
+
+Zurück an der Bushaltestelle. Gegenwart. Sie schaut zurück zum Jungen und erkennt das er sie anschaut. Er lächelt. Sie schaut
+fragend verdutzt zurück. Der Junge holt aus seinem Rucksack sein Handy hervor. Man sieht es ist gebrochen. Sie schaut runter
+und lacht ein wenig. Der Junge fängt auch an zu lachen und beiden Blicke schauen sich an. In der Ferne sieht man sie mit
+den Händen gestikulieren und sich unterhalten. Der Blick geht weiter weg von ihnen immernoch auf der Bank sitzend. Das Bild wird
+schwarz. Man hört einen Handy-Abschließ/Aufschließ Ton.
